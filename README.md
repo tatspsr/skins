@@ -1,1 +1,6 @@
-https://drive.google.com/file/d/1WN6htqsj-fYyjvgrA3cs4GsdRubqOj1j/view?usp=sharing
+std:
+https://drive.google.com/file/d/1Zif8HSv4_v8lqXHFnMnSnNUv9-VBVUda/view?usp=sharing
+
+mania:
+https://drive.google.com/file/d/1y89u4gF0hZ7FJnRquat1DX4sQJlwrvNx/view?usp=sharing
+
