@@ -8,4 +8,4 @@ https://drive.google.com/file/d/1T_jBWXGK_BSFNf-sqfgyoUUp1A5QFGK-/view?usp=shari
 
 maniac:
 
-https://drive.google.com/file/d/1bV5glvugrW1YzfCuZS6yRZyB1fVEkQjJ/view?usp=sharing
+https://drive.google.com/file/d/1Z1oSs0znTwfUZALv7OAFli7voREwLOgR/view?usp=sharing
